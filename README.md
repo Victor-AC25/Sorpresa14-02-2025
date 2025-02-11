@@ -1,7 +1,6 @@
 # Regalo para San Valentin 
 Autor propio: 🧑‍💻
-  - [¡Luis Flores!](https://github.com/LuisKinnDC) 
-  - [¡Gerardo Espitia!](https://github.com/gerardoez)
+  - Victor AC ❤️‍🩹✨
 ## Incluye
 
 **Jueguito de atrapar corazones**
